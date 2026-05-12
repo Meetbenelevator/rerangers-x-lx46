@@ -1,4 +1,4 @@
-#  
+#  Experience re:rangers x like never before with vip Script for re:rangers x, the #1 Script. Includes one-hit kill and no cooldown for unbeatable
 
 
 
